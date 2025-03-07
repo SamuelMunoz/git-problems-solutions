@@ -1,5 +1,6 @@
 # How to solve my money problems
 
+
 I understand that you are going through some money problems. Here are some general steps you can take to solve them:
 
 1.  **Acknowledge and assess:** The first step is to fully understand the extent of your money problems.
